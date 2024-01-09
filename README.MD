@@ -18,4 +18,4 @@ The Graduate School of Natural and Applied Sciences
 Dokuz Eylul University
 Izmir, Turkey
 
-kasra.musighichi@gmail.com
+kasra.musighichi[ at ]gmail.com
